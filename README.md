@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @duongnbnhs
+- 👋 Hi, I’m @duongnb
 - 👀 I’m interested in sen =))
 
 
